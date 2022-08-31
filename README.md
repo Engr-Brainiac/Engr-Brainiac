@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Engr-Brainiac
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...NEW BUSINESS IDEAL
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...GBRAIN CORPORATE BUSINESS VENTURES
 - 📫 How to reach me ...08106361767
